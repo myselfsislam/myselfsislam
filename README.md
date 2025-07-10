@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the ideas where I can invest myself iin whatever capacity to make a meaning out of it
 - 📫 How to reach me : Email @ myselfsohailislam@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am a foodie by stomach and techie by heart ;) :)
+- ⚡ Fun fact: I am a foodie by belly and techie by heart ;) :)
 
 <!---
 myselfsislam/myselfsislam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
